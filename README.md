@@ -6,4 +6,10 @@
 - mim gosta de ouçar música 🎶
 - mim não gosta da [Alura](https://wwww.alura.com.br)
 
+### Meu email para contato:
+clarissazanelatocz@gmail.com
+
+
 ![](https://media1.tenor.com/m/gSLbcybBgAYAAAAd/lana-del-rey-kiss.gif)
+
+
