@@ -4,7 +4,7 @@
 - mim amar ler 📚
 - mim amar a lana del rey 🎤
 - mim gosta de ouçar música 🎶
-- mim não gosta da [Alura](https://wwww.alura.com.br)
+- mim não gosta da [Alura](https://www.alura.com.br)
 
 ### Meu email para contato:
 clarissazanelatocz@gmail.com
