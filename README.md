@@ -1,5 +1,5 @@
 ### oieee 🥰
- aqui é a Clarissa (clarssao0102) ❤🩹
+ aqui é a Clarissa (clarissao0102) ❤🩹
 
 - mim amar ler 📚
 - mim amar a lana del rey 🎤
